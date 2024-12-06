@@ -1,1 +1,1 @@
-hotkeysssss
+just a hotkey practice map
